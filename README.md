@@ -1,1 +1,1 @@
-Belajar scala gengs cd SCALAD/
+Bentar lagi sholat ashar dulu ya
